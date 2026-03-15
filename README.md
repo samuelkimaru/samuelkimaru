@@ -1,5 +1,5 @@
 - 👋 Hi, I’m MUCHIRI
-- 👀 I’m interested in ...Basketball,snowboarding
+- 👀 I’m interested in ...Basketball
 - 🌱 I’m currently learning ...STEM AT JKUAT
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...you can look for me through my instagram @ m_u_c_h_i_r_i
