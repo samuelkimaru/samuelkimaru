@@ -1,8 +1,8 @@
 - 👋 Hi, I’m MUCHIRI
 - 👀 I’m interested in ...Basketball
-- 🌱 I’m currently learning ...STEM AT JKUAT
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...you can look for me through my instagram @ m_u_c_h_i_r_i
+- 🌱 I’m currently learning ...BSc IT at KCA university
+- 💞️ I’m looking to collaborate on ...anything related to tech
+- 📫 How to reach me ...My email muchirikimaru@gmail.com or 0757522929
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...I am an AMBIVERT
 
